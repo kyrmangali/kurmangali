@@ -1,2 +1,0 @@
-# kurmangali
-# kurmangali
